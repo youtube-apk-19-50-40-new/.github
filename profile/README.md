@@ -5,7 +5,6 @@
 | Compatível com: Android 8.0+ | Versão: 19.50.40 |
 | Categoria: Reprodutores e editores de vídeo |Tamanho: 149,45 Mb|
 
-👇👇👇
 [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://heyapks.com/)
 ## 🎥 O que é YouTube Premium MOD APK?  
 O YouTube Premium MOD APK é uma versão modificada do aplicativo oficial do YouTube. Ele desbloqueia recursos premium, como reprodução sem anúncios, reprodução em segundo plano e downloads offline, sem necessidade de assinatura.  
